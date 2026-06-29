@@ -1,0 +1,1 @@
+# bazaarcart-privacypolicy
